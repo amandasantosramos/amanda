@@ -13,3 +13,4 @@ as minhas materias preferidas são artes e historia, na epesmel eu gosto da aula
 
 <p>eu gosto de comer açai,strogonoff,a minha cor preferida é preto
 eu gosto de mexer no celular e ver filme e serie na netflix,eu tinha 2 cachoros mas um morreu então eu só fiquei com a minha cachorra ela ja esta idosa.</p>
+
